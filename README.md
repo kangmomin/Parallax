@@ -1,1 +1,1 @@
-https://koldin108902.github.io/Parallax/
+https://kangmomin.github.io/Parallax/
